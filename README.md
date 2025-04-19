@@ -1,6 +1,6 @@
 ⠀𝝑𝝔⠀⠀hi⠀⠀!!
 
-⠀⠀he / she⠀  ⠀4teen⠀⠀  basic dni .
+⠀⠀she / her⠀  ⠀4teen⠀⠀  basic dni .
 
   psychos nostalgia' ⠀&⠀ pretty faceless
 
