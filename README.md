@@ -4,4 +4,4 @@
 
   cosplayer' ⠀&⠀ gal
 
-<img src="https://i.pinimg.com/originals/21/9a/df/219adf59de796e6331c97eeec1f42a88.gif"/>
+<img src="https://i.pinimg.com/736x/99/77/3c/99773c7504474336b2be1d4665f1cdbd.jpg"/>
